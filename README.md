@@ -1,4 +1,11 @@
 ## _HelloWorld!_
 
-' - & hello! ill fix this soon its a massive wip. see you soon then
-{color/blue/text{test
+
+$\color{darkgrey}{\textsf{[ rebooting as soon as i able . . . ] }}$
+
+$\color{blue}{\text{ !  sevoon / seven  !}}$
+
+
+
+
+$\color{lightblack}{\textsf{ wip mb gng ill fix it later }}$
