@@ -1,7 +1,7 @@
 ## _HelloWorld!_
 
 
-$\color{darkgrey}{\textsf{[ rebooting  as  soon  as  i  able . . . ] }}$
+$\color{darkgrey}{\textsf{[ rebooting  as  soon  as  im  able . . . ] }}$
 ---
 $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
