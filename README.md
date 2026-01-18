@@ -23,7 +23,7 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 > $\color{c9e3e7}{\textsf{ any pronouns ! [ he / they prefered! ]}}$
 > $\color{9da1a4}{\textsf{ map owner of BTDS mafia ! shared w/ kkeira0807-92426 (dc) ; retired mafia hoster :x }}$
 
-# $\color{green}{\textsf{ dni list , if youre in this list feel free to block me ! }}$
+# $\color{green}{\textsf{ dni list , if youre in this list feel free to block me . }}$
 
  > _preds + child lovers ( romantically )_
 
