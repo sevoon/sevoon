@@ -1,4 +1,4 @@
- ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)^![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)
+ ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)   ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)
 
 
 
@@ -20,4 +20,23 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
 > ![image](https://github.com/user-attachments/assets/b5caa753-450a-4560-aa28-9769aa0f64a6) >
 
-> $\color{c9e3e7}{\textsf{ any pronouns ! [ he / they prefered! ]}}$ ; $\color{9da1a4}{\textsf{ map owner of BTDS mafia ! shared w/ kkeira0807-92426 (dc) ; retired mafia hoster :x }}$
+> $\color{c9e3e7}{\textsf{ any pronouns ! [ he / they prefered! ]}}$
+> $\color{9da1a4}{\textsf{ map owner of BTDS mafia ! shared w/ kkeira0807-92426 (dc) ; retired mafia hoster :x }}$
+
+# $\color{green}{\textsf{ dni list , if youre in this list feel free to block me ! }}$
+
+ > _preds + child lovers ( romantically )_
+
+ > _sexist_
+
+ > _transphobics + homophobics_
+
+ > _ppl who disrepects religons_
+
+ > _Spawnisim, ( who is in it and supports it , im fine with TwoTime , Azure , Amarah and such, since those charaters are FICTION. )_
+
+ > _under 10 ( unless close friends )_
+
+ > _over 20 ( unless close friends )_
+
+ > _weirdos ( uncomfortable talks , harrassment , inapporate topics , manipulating ... GET OUT NOW )_
