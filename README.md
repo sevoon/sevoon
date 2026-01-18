@@ -22,6 +22,8 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
 > $\color{c9e3e7}{\textsf{ any pronouns ! [ he / they prefered! ]}}$
 
+> $\color{c9e3e7}{\textsf{ sua ( alnst ) + 007n7 ( roblox / forsaken ) + hungry ( collinlock-16 arg ) + color and eletricity ( music video by muship / c00lkid skin ) kin ! }}$
+
 > $\color{9da1a4}{\textsf{ map owner of BTDS mafia ! shared w/ kkeira0807-92426 (dc) ; retired mafia hoster :x }}$
 
 ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)
