@@ -13,5 +13,4 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 ---
 
 
-
-$\color{lightblack}{\textsf{  wip  mb  gng  ill  fix  it  later }}$
+   $\color{darkblue}{\textsf{great, now you're begging me to stay? fuck off loser.}}$ 
