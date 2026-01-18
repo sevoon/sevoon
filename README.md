@@ -1,5 +1,6 @@
  ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)   ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)
 
+![](https://img.shields.io/badge/jellofishies-2012-white?style=plastic&labelColor=335BD4&logo=adobe)
 
 
 > # $\color{darkgrey}{\textsf{[ rebooting  as  soon  as  im  able . . . ] }}$
