@@ -28,6 +28,8 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
 ![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)![image](https://github.com/user-attachments/assets/94f693ce-c370-4002-8812-e35055dfd79f)
 
+   $\color{darkblue}{\textsf{" dont let me repeat it twice. Leave or i leave. "}}$
+
 # $\color{green}{\textsf{ dni list , if youre in this list feel free to block me . }}$
 
  > _preds + child lovers ( romantically )_
