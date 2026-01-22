@@ -46,4 +46,4 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
  > _over 20 ( unless close friends )_
 
- > _weirdos ( uncomfortable talks , harrassment , inapporate topics , manipulating ... GET OUT NOW )_
+ > _weirdos ( uncomfortable talks , harrassment , inapporate topics , manipulating ... dni except @shittymastu. dont ask and view his. )_
