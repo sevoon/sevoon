@@ -30,20 +30,4 @@ $\color{blue}{\text{ -- !  sevoon / seven  !}}$
 
    $\color{darkblue}{\textsf{" dont let me repeat it twice. Leave or i leave. "}}$
 
-# $\color{green}{\textsf{ dni list , if youre in this list feel free to block me . }}$
-
- > _preds + child lovers ( romantically )_
-
- > _sexist_
-
- > _transphobics + homophobics_
-
- > _ppl who disrepects religons_
-
- > _Spawnisim, ( who is in it and supports it , im fine with TwoTime , Azure , Amarah and such, since those charaters are FICTION. )_
-
- > _under 10 ( unless close friends )_
-
- > _over 20 ( unless close friends )_
-
- > _weirdos ( uncomfortable talks , harrassment , inapporate topics , manipulating ... dni except @shittymatsu. dont ask and view his. )_
+will add more in the future, basic dnis okay? okay.
