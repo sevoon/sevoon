@@ -4,4 +4,4 @@
 $$ {\color{blue} "  Where  ,  Am  ,  I?  ,  I  ,  Feel  ,  Weird. ,  But  ,  I ,  Dont ,  Hate  ,  It...  " } $$
 
 
-hello! to every jelliefyshies that're reading this! thank you for your support if you follow me ^_^
+hello! to every jelliefyshies that're reading this! thank you for your support for following me ^_^
