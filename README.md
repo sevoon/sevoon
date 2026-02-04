@@ -9,6 +9,11 @@ ${\color{blue}- sevoon / seven }$
 ${\color{blue}- minor ; neurodivergent , adhd , autisim . iwc ! }$
 
 - - -
+![image](https://github.com/user-attachments/assets/ab041686-7520-4f02-beca-03577ce2e872)
 
 
- 
+
+$\color{white}{\textsf{ " Lets go to heaven ! Lets go to heaven ! " }}$
+$\color{white}{\textsf{" Me and You enjoy breaking apart , just two of us ! " }}$
+
+$\color{blue}{\textsf{ - im scared of new friends. I dont know when they will suddenly leave w/o telling. I hate it, i despite it. }}$
