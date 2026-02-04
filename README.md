@@ -20,3 +20,5 @@ $\color{white}{\textsf{" Without being bothered by anyone anymore, to our weddin
 $\color{gray}{\textsf{" So let's go ! Let's go to heaven ! " }}$
 
 $\color{blue}{\textsf{ - im scared of new friends. I dont know when they will suddenly leave w/o telling. I hate it, i despite it. }}$
+
+![image](https://github.com/user-attachments/assets/19fb2722-709d-4ef2-a70b-9059cca3aadc)
