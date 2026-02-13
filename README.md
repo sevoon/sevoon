@@ -23,6 +23,7 @@ $\color{yellow}{\text{- i love shedletsky equally like my it/its father }}$
 
 
 
+![image](https://github.com/user-attachments/assets/53e0e59a-ec8d-49ab-9e7b-c4afbcb71c7b)
 
 
 
