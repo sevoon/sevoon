@@ -6,7 +6,7 @@
 
 
 
-$$\color{yellow}{\text{ " The ultimate BUILDER-fan >-< !!!!  " }}$$
+$$\color{yellow}{\text{ " The ultimate BUILDER-fan >-< !!! Uh-Oh! Something bad will happen soon! 0-o " }}$$
 
 
 ${\color{orange}- sevoon / seven }$
@@ -15,7 +15,15 @@ ${\color{orange}- minor ; neurodivergent , . iwc ! }$
 
 - - -
 
-$\color{yellow}{\textsf{- im scared of new friends. I dont know when they will suddenly leave w/o telling. I hate it, i despite it. }}$
-
 
 ![image](https://github.com/user-attachments/assets/1b7baced-3c9e-4c4b-b572-6e341d5c3fe3)
+
+
+$\color{yellow}{\text{- i love shedletsky equally like my it/its father }}$
+
+
+
+
+
+
+$\color{black}{\textsf{- im scared of new friends. I dont know when they will suddenly leave w/o telling. I hate it, i despite it. }}$
