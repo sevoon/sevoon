@@ -6,7 +6,7 @@
 
 
 
-$$\color{yellow}{\text{ " The ultimate BUILDER-fan >-< !!! Uh-Oh! Something bad will happen soon! 0-o " }}$$
+$$\color{yellow}{\text{ " The ultimate BUILDER-fan 0-o !!! " }}$$
 
 
 ${\color{orange}- sevoon / seven }$
