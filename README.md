@@ -19,7 +19,7 @@ ${\color{orange}- minor ; neurodivergent , . iwc ! }$
 ![image](https://github.com/user-attachments/assets/1b7baced-3c9e-4c4b-b572-6e341d5c3fe3)
 
 
-$\color{yellow}{\text{- basic dnis, overthinking last boss. Im dry most of the times but i can make someone have comfort around me. }}$
+$\color{yellow}{\text{- basic dnis, overthinking last boss. Im dry most of the times but i can try make someone be comfortable around me. }}$
 
 
 
