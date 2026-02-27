@@ -2,16 +2,16 @@
 
 
 
-![image](https://github.com/user-attachments/assets/09d84ff6-e675-4ffa-be5f-dcd389e74a4d)
 
 
 
-$$\color{yellow}{\text{ " The ultimate Builder-FAN 0-o !!! " }}$$
+
+$$\color{d45422}{\text{ 0-o !!! }}$$
 
 
-${\color{orange}- sevoon / seven }$
+${\color{orange}- sevoon / seven / sev }$
 
-${\color{orange}- minor ; neurodivergent , . iwc ! }$
+${\color{orange}- ft.teen ; neurodivergent.,iwcare ! }$
 
 - - -
 
@@ -19,7 +19,8 @@ ${\color{orange}- minor ; neurodivergent , . iwc ! }$
 ![image](https://github.com/user-attachments/assets/1b7baced-3c9e-4c4b-b572-6e341d5c3fe3)
 
 
-$\color{yellow}{\text{- basic dnis, overthinking last boss. Im dry most of the times but i can try make someone be comfortable around me. }}$
+$\color{yellow}{\text{-> basic dnis, overthinking last boss. 
+Im dry most of the times but i can try make someone be comfortable around me. }}$
 
 
 
